@@ -1,0 +1,3 @@
+- 👋 Szffer..
+- 👀 Music/Mechanix/Ptec 
+- 📫 szffer0 on all socials
